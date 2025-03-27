@@ -1,1 +1,1 @@
-- [LNLenost](https://github.com/LNLenost) footage from Milan, Italy
+- [LNLenost](https://github.com/LNLenost): footage from Milan, Italy
