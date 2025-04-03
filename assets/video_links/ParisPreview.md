@@ -17,3 +17,6 @@
 [Nintendo Switch 2 - A Full Hardware Rotation from the Paris Preview](https://www.gamereactor.eu/video/728373/Nintendo+Switch+2+-+A+Full+Hardware+Rotation+from+the+Paris+Preview/) - Gamereactor
 
 [Nintendo Switch 2: Welcome Tour (Gameplay) - A Snippet of the Fun from Paris](https://www.gamereactor.eu/video/728393/Nintendo+Switch+2+Welcome+Tour+Gameplay+-+A+Snippet+of+the+Fun+from+Paris/) - Gamereactor
+
+[Nuova NINTENDO SWITCH 2 Anteprima, prezzo, e ... MARIO KART!](https://youtu.be/XQ9PgkZuPMc?si=tpE8AmXMc7WTMUG4) - andreagaleazzi.com
+
